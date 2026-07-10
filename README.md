@@ -1,1 +1,0 @@
-# siirlendik.github.io
